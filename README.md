@@ -1,1 +1,1 @@
-Linkedin: https://www.linkedin.com/in/igor-jasinski/
+LinkedIn: https://www.linkedin.com/in/igor-jasinski/
